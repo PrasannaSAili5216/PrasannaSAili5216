@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial intelligence and Machine Learning 
 - 🌱 I’m currently learning Artificial intelligence and Machine Learning 
 - 💞️ I’m looking to collaborate on Cyber security 
-- 📫 How to reach me through LinkedIn profile 
+- 📫 How to reach me through Finding recruiters
 - 😄 Pronouns: Prasu
 - ⚡ Fun fact: I comfortable with anyone 😜 
 
